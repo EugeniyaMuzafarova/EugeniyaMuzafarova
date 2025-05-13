@@ -1,6 +1,6 @@
 ### Hi there, I'm Jenya 👋
 
-## I’m currently looking for a job as a product analyst or a data analyst
+## I’m a product analyst
 
 
 ### You can check my portfolio here:
